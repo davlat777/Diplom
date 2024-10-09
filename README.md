@@ -1,5 +1,6 @@
-Диплом [https://ru.yougile.com/board/vjfjaqh55uzz]
+[Диплом](https://ru.yougile.com/board/vjfjaqh55uzz)
 
+https://bom.firpo.ru/Public/86
 # План работы
 1. Что вы будете делать? Ответ: Сайт бренда одежды
 2. Зачем вы будете это делать? Ответ: Для массового использования
